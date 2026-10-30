@@ -1,2 +1,2 @@
 # usamashahid
-E-commerce &amp; Marketplace Specialist
+Amazon Seller Expert | Amazon PPC Expert | Amazon Seller Management 
